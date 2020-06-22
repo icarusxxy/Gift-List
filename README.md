@@ -15,6 +15,11 @@ Just something I want, and didn't get the money to buy, yet.
 - [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
 - GoPro
 - Garmin Felix
+- boogie board blackboard 14"
+- 書: 女神自助餐
+- 墊電腦螢幕的木架子
+- 漁夫帽
 - 東京事變/椎名林檎相關周邊
 - Beatles/Radiohead/Oasis相關周邊
 - 鋼鍊/JoJo/EVA相關周邊
+- 平板電腦
