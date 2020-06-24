@@ -28,3 +28,4 @@ Just something I want, and didn't get the money to buy, yet.
 - 輕便交通板
 - 瘟疫醫生面具
 - 全面防毒面具
+- 台隆手創的坐姿調整椅墊 (勝野式)
