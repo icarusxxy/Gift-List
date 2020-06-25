@@ -32,3 +32,5 @@ Just something I want, and didn't get the money to buy, yet.
 - 瘟疫醫生面具
 - 全/半面防毒面具 (3M佳)
 - 台隆手創的坐姿調整椅墊 (勝野式)
+- we're not really stranger
+- opsnsuse 的 gecko 玩偶
