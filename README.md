@@ -1,4 +1,4 @@
-# Gift-List
+# Yutung's Gift-List
 Just something I want, and didn't get the money to buy, yet.
 
 ```
@@ -26,7 +26,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 東京事變/椎名林檎相關周邊
 - Beatles/Radiohead/Oasis相關周邊
 - 鋼鍊/JoJo/EVA相關周邊
-- 平板電腦
+- 平板電腦 (不要APPLE/中國牌)
 - Zippo 打火機
 - 輕便交通板
 - 瘟疫醫生面具
@@ -34,3 +34,4 @@ Just something I want, and didn't get the money to buy, yet.
 - 台隆手創的坐姿調整椅墊 (勝野式)
 - we're not really stranger
 - opsnsuse 的 gecko 玩偶
+- ~~Stanley 的保溫瓶~~
