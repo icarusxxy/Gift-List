@@ -36,3 +36,4 @@ Just something I want, and didn't get the money to buy, yet.
 - opsnsuse 的 gecko 玩偶
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
+- 信封封蠟
