@@ -15,7 +15,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 超高流明便攜式戰術手電筒
 - [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
 - GoPro
-- Garmin Felix
+- Garmin Felix / vívomove Style
 - boogie board blackboard 14"
 - 書: 
   - 女神自助餐
