@@ -33,7 +33,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 全/半面防毒面具 (3M佳)
 - 台隆手創的坐姿調整椅墊 (勝野式)
 - we're not really stranger
-- opsnsuse 的 gecko 玩偶
+- opnsuse 的 gecko 玩偶
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
 - 信封封蠟套組
