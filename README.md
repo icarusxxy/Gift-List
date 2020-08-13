@@ -11,6 +11,7 @@ Just something I want, and didn't get the money to buy, yet.
 ```
 
 - Switch 紅藍版主機
+- 羊毛與千葉花 - Live in Living’09 或任何 Live in Living系列
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
 - 超高流明便攜式戰術手電筒
 - [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
