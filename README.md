@@ -15,6 +15,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何羊毛與千葉花、陳珊妮的專輯
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
 - 超高流明便攜式戰術手電筒
+- 任何 mr-sci.net 賣的酷東東
 - [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
 - GoPro
 - Garmin Felix / vívomove Style
