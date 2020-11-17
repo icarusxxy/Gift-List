@@ -33,7 +33,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 東京事變/椎名林檎相關周邊
 - Beatles/Radiohead/Oasis相關周邊
 - 鋼鍊/JoJo/EVA相關周邊
-- 平板電腦 (不要APPLE/中國牌)
+- ~~平板電腦 (不要APPLE/中國牌)~~
 - Zippo 打火機
 - 輕便交通板
 - 瘟疫醫生面具
@@ -46,3 +46,4 @@ Just something I want, and didn't get the money to buy, yet.
 - 信封封蠟套組
 - Topologie後背包
 - ukubass
+- 微型投影機
