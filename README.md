@@ -48,3 +48,5 @@ Just something I want, and didn't get the money to buy, yet.
 - ukubass
 - 微型投影機
 - whiskey wedge
+- Marshall / Bose 的藍牙音響
+
