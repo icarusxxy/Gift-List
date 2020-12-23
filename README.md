@@ -23,6 +23,7 @@ Just something I want, and didn't get the money to buy, yet.
 - Garmin Felix / vívomove Style
 - boogie board blackboard 14"
 - 書: 
+  - [被窩是青春的墳墓](https://www.taaze.tw/products/11100922208.html)
   - 女神自助餐
   - 罪刑海洋 The Outlaw Ocean
   - 房思琪的初戀樂園
