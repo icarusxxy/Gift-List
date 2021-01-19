@@ -22,7 +22,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
 - GoPro
-- Garmin Felix / vívomove Style
+- Garmin Instinct Solar運動衝浪版 / Felix / vívomove Style
 - boogie board blackboard 14"
 - 書: 
   - [女性主義理論與流變](https://www.taaze.tw/goods/11100868326.html)
