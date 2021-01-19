@@ -36,9 +36,9 @@ Just something I want, and didn't get the money to buy, yet.
   - 任何卡謬、村上春樹、吉本芭娜娜、保羅奧斯特、沙特、赫賽、李維菁、黃麗群、吳明益的書
 - 墊電腦螢幕的木架子
 - 漁夫帽
-- 東京事變/椎名林檎相關周邊
-- Beatles/Radiohead/Oasis相關周邊
-- 鋼鍊/EVA/BoJack Horseman/Rick & Morty/Adventure Time/JoJo 相關周邊
+- 東京事變 / 椎名林檎相關周邊
+- Beatles / Radiohead / Oasis 相關周邊
+- 鋼鍊 / EVA / BoJack Horseman / Rick & Morty / Adventure Time / JoJo 相關周邊
 - ~~平板電腦 (不要APPLE/中國牌)~~
 - Zippo 打火機
 - 輕便交通板
@@ -50,9 +50,9 @@ Just something I want, and didn't get the money to buy, yet.
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
 - 信封封蠟套組
-- Topologie後背包
+- Topologie / Fjällräven(不要Kånken款) 後背包
 - ukubass
 - 微型投影機
 - whiskey wedge
 - Marshall / Bose 的藍牙音響
-- quicksilver的海灘褲
+- quicksilver 的海灘褲
