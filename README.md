@@ -50,9 +50,10 @@ Just something I want, and didn't get the money to buy, yet.
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
 - 信封封蠟套組
-- Topologie / Fjällräven(不要Kånken款) 後背包
+- Topologie / Fjällräven(不要Kånken款) / Patagonia 後背包
 - ukubass
 - 微型投影機
 - whiskey wedge
 - Marshall / Bose 的藍牙音響
 - quicksilver 的海灘褲
+- 超大 enter 按鈕
