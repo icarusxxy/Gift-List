@@ -58,3 +58,5 @@ Just something I want, and didn't get the money to buy, yet.
 - quicksilver 的海灘褲
 - 超大 enter 按鈕
 - [ecosia 周邊](https://ecosiashop.com/)
+- 88鍵電子琴/電鋼琴
+- 空氣鼓棒
