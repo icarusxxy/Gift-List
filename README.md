@@ -20,7 +20,7 @@ Just something I want, and didn't get the money to buy, yet.
 - [LEGO® Art | The Beatles (31198)](https://www.lego.com/en-us/product/tbd-music-2020-31198)
 - 任何 [mr-sci.net](https://mr-sci.net/) 賣的酷東東
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
-- [FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)
+- ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
 - GoPro 8/9/10/11
 - Garmin Instinct Solar運動衝浪版 / Felix / vívomove Style
 - boogie board blackboard 14"
@@ -40,8 +40,8 @@ Just something I want, and didn't get the money to buy, yet.
 - Beatles / Radiohead / Oasis 相關周邊
 - 鋼鍊 / EVA / BoJack Horseman / Rick & Morty / Adventure Time / JoJo 相關周邊
 - ~~平板電腦 (不要APPLE/中國牌)~~
-- Zippo 打火機
-- 輕便交通板
+- Zippo / bic 打火機
+- ~~輕便交通板~~
 - 瘟疫醫生面具
 - 馬頭套
 - 全/半面防毒面具 (3M佳)
