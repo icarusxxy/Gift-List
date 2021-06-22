@@ -33,6 +33,7 @@ Just something I want, and didn't get the money to buy, yet.
   - 房思琪的初戀樂園
   - ~~正常人~~
   - 正午惡魔
+  - I Used to Have a Plan: But Life Had Other Ideas
   - 任何卡謬、村上春樹、吉本芭娜娜、保羅奧斯特、沙特、赫賽、李維菁、黃麗群、吳明益的書
 - 墊電腦螢幕的木架子
 - ~~漁夫帽~~
