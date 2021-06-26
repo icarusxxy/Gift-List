@@ -17,7 +17,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 超高流明便攜式戰術手電筒
 - codex seraphinianus
 - [Criterion Collection: World of Wong Kar Wai](https://www.criterion.com/boxsets/4117-world-of-wong-kar-wai)
-- [LEGO® Art | The Beatles (31198)](https://www.lego.com/en-us/product/tbd-music-2020-31198)
+- [LEGO® Art | The Beatles 31198](https://www.lego.com/en-us/product/tbd-music-2020-31198)
 - 任何 [mr-sci.net](https://mr-sci.net/) 賣的酷東東
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
