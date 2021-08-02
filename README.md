@@ -55,7 +55,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 美達寶美茶包
 - 信封封蠟套組
 - Topologie / Fjällräven(不要Kånken款) / Patagonia 後背包
-- ukubass
+- ~~ukubass~~
 - 微型投影機
 - whiskey wedge
 - Marshall / Bose 的藍牙音響
@@ -65,3 +65,4 @@ Just something I want, and didn't get the money to buy, yet.
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
 - Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
+- ocean-teabag 水獺版
