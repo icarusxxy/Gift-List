@@ -36,7 +36,7 @@ Just something I want, and didn't get the money to buy, yet.
   - 正午惡魔
   - I Used to Have a Plan: But Life Had Other Ideas
   - 真相製造
-  - 迷因：基因和迷因共謀的人類心智和文化演化史
+  - [迷因：基因和迷因共謀的人類心智和文化演化史](https://www.twreporter.org/a/bookreview-the-meme-machine)
   - 任何卡謬、村上春樹、吉本芭娜娜、保羅奧斯特、沙特、赫賽、李維菁、黃麗群、吳明益的書
 - 墊電腦螢幕的木架子
 - ~~漁夫帽~~
