@@ -11,6 +11,8 @@ Just something I want, and didn't get the money to buy, yet.
 ```
 
 - Switch 紅藍版主機(電力加強版)
+- Hanchor Flint / Breccia / Marble / Marl / Tufa
+- Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
 - 羊毛與千葉花 - Live in Living’09
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
@@ -66,6 +68,4 @@ Just something I want, and didn't get the money to buy, yet.
 - [ecosia 周邊](https://ecosiashop.com/)
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
-- Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
 - ocean-teabag 水獺版
-- Hanchor Flint / Breccia / Marble / Marl / Tufa
