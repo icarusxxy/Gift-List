@@ -12,6 +12,7 @@ Just something I want, and didn't get the money to buy, yet.
 
 - Switch 紅藍版主機(電力加強版)
 - Hanchor Flint / Breccia / Marble / Marl / Tufa
+- Tropicfeel Shell / Nest
 - Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
 - 羊毛與千葉花 - Live in Living’09
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
