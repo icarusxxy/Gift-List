@@ -70,3 +70,4 @@ Just something I want, and didn't get the money to buy, yet.
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
 - ocean-teabag 水獺版
+- [SCRIBEE Mood Light](https://www.see-art.com/products/scribee-mood-light)
