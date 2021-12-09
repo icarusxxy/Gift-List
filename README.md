@@ -73,3 +73,5 @@ Just something I want, and didn't get the money to buy, yet.
 - ocean-teabag 水獺版
 - [SCRIBEE Mood Light](https://www.see-art.com/products/scribee-mood-light)
 - Hilleberg 紅標/黃標 三人帳
+- Kinesis Advantage 2 鍵盤
+- aeropress 野營咖啡機
