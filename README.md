@@ -31,6 +31,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 書: 
   - [女性主義理論與流變](https://www.taaze.tw/goods/11100868326.html)
   - [被窩是青春的墳墓](https://www.taaze.tw/products/11100922208.html)
+  - 人生4千個禮拜
   - 桃紅柳綠，生張熟李
   - ~~[我所告訴你關於那座山的一切](https://www.taaze.tw/products/11100879025.html)~~
   - 女神自助餐
