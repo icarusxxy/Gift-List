@@ -3,11 +3,13 @@ Just something I want, and didn't get the money to buy, yet.
 
 ```
 以下是
-我想要但沒錢/
-捨不得花錢/
-還沒來得及/
-還沒決定真的要花錢買但如果有人送的話也不錯
-的東西，耶～
+1. 我想要但沒錢買
+2. 捨不得花錢買
+3. 還沒來得及買
+4. 還沒決定真的要花錢買
+但如果有人送的話也不錯的東西
+
+耶～
 ```
 
 - Switch 紅藍版主機(電力加強版)
@@ -25,7 +27,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何 [mr-sci.net](https://mr-sci.net/) 賣的酷東東
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
-- GoPro 8/9/10/11
+- GoPro 9/10/11
 - Garmin Instinct Solar運動衝浪版 / Felix / vívomove Style
 - boogie board blackboard 14"
 - 書: 
@@ -50,7 +52,7 @@ Just something I want, and didn't get the money to buy, yet.
 - Beatles / Radiohead / Oasis 相關周邊
 - 鋼鍊 / EVA / BoJack Horseman / Rick & Morty / Adventure Time / JoJo 相關周邊
 - ~~平板電腦 (不要APPLE/中國牌)~~
-- Zippo / bic 打火機
+- ~~Zippo / bic 打火機~~
 - ~~輕便交通板~~
 - 瘟疫醫生面具
 - 馬頭套
@@ -61,13 +63,13 @@ Just something I want, and didn't get the money to buy, yet.
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
 - 信封封蠟套組
-- Topologie / Fjällräven(不要Kånken款) / Patagonia 後背包
+- Topologie / Fjällräven(不要Kånken款) / Patagonia 的後背包
 - ~~ukubass~~
 - 微型投影機
 - whiskey wedge
 - Marshall / Bose 的藍牙音響
 - quicksilver 的海灘褲
-- 超大 enter 按鈕
+- ~~超大 enter 按鈕~~
 - [ecosia 周邊](https://ecosiashop.com/)
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
