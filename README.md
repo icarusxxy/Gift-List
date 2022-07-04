@@ -15,7 +15,7 @@ Just something I want, and didn't get the money to buy, yet.
 - Switch 紅藍版主機(電力加強版)
 - [Divoom Ditoo Plus](https://hk.pinkoi.com/product/vSypJEPq)
 - Hanchor Flint / Breccia / Marble / Marl / Tufa 包包
-- Leatherman 工具鉗
+- ~~Leatherman 工具鉗~~
 - Tropicfeel Shell / Nest
 - Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
 - 羊毛與千葉花 - Live in Living’09
