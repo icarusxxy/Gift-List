@@ -25,6 +25,7 @@ Just something I want, and didn't get the money to buy, yet.
 - codex seraphinianus
 - [Criterion Collection: World of Wong Kar Wai](https://www.criterion.com/boxsets/4117-world-of-wong-kar-wai)
 - [LEGO® Art - The Beatles (31198)](https://www.lego.com/en-us/product/tbd-music-2020-31198)
+- 任何 [The Oh No Shop](https://www.theohnoshop.com/) 賣的可愛東東
 - 任何 [mr-sci.net](https://mr-sci.net/) 賣的酷東東
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
@@ -64,7 +65,7 @@ Just something I want, and didn't get the money to buy, yet.
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
 - 信封封蠟套組
-- Topologie / Fjällräven(不要Kånken款) / Patagonia 的後背包
+- ~~Topologie / Fjällräven(不要Kånken款) / Patagonia 的後背包~~
 - ~~ukubass~~
 - 微型投影機
 - whiskey wedge
