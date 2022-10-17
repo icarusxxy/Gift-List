@@ -14,6 +14,7 @@ Just something I want, and didn't get the money to buy, yet.
 
 - Switch 紅藍版主機(電力加強版)
 - [Divoom Ditoo Plus](https://hk.pinkoi.com/product/vSypJEPq)
+- fragment 8 retro camera
 - Hanchor Flint / Breccia / Marble / Marl / Tufa 包包
 - ~~Leatherman 工具鉗~~
 - Tropicfeel Shell / Nest
