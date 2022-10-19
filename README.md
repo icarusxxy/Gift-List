@@ -23,6 +23,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
 - 超高流明便攜式戰術手電筒
+- [台數表Project：海底撈月短踢](https://www.versetw.com/products/mahjongg-t-shirt-1-1)
 - codex seraphinianus
 - [Criterion Collection: World of Wong Kar Wai](https://www.criterion.com/boxsets/4117-world-of-wong-kar-wai)
 - [LEGO® Art - The Beatles (31198)](https://www.lego.com/en-us/product/tbd-music-2020-31198)
