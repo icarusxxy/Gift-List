@@ -14,6 +14,7 @@ Just something I want, and didn't get the money to buy, yet.
 
 - Switch 紅藍版主機(電力加強版)
 - Remarkable 2
+- - Penny Board 29" Surfskate 
 - Boox 7" 以上
 - [Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)
 - fragment 8 retro camera
