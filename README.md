@@ -13,7 +13,9 @@ Just something I want, and didn't get the money to buy, yet.
 ```
 
 - Switch 紅藍版主機(電力加強版)
-- [Divoom Ditoo Plus](https://hk.pinkoi.com/product/vSypJEPq)
+- Remarkable 2
+- Boox 7" 以上
+- [Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)
 - fragment 8 retro camera
 - Hanchor Flint / Breccia / Marble / Marl / Tufa 包包
 - ~~Leatherman 工具鉗~~
@@ -32,7 +34,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
 - GoPro 9/10/11
-- Garmin Instinct Solar運動衝浪版 / Felix / vívomove Style
+- Garmin Instinct Solar運動衝浪版 / Felix ~~/ vívomove Style~~
 - boogie board blackboard 14"
 - 書: 
   - [女性主義理論與流變](https://www.taaze.tw/goods/11100868326.html)
