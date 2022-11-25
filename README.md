@@ -14,7 +14,7 @@ Just something I want, and didn't get the money to buy, yet.
 
 - Switch 紅藍版主機(電力加強版)
 - Remarkable 2
-- - Penny Board 29" Surfskate 
+- ~~Penny Board 29" Surfskate~~
 - Boox 7" 以上
 - [Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)
 - fragment 8 retro camera
@@ -35,7 +35,7 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
 - GoPro 9/10/11
-- Garmin Instinct Solar運動衝浪版 / Felix ~~/ vívomove Style~~
+- Garmin Instinct Solar 運動衝浪版 / Felix ~~/ vívomove Style~~
 - boogie board blackboard 14"
 - 書: 
   - [女性主義理論與流變](https://www.taaze.tw/goods/11100868326.html)
@@ -81,7 +81,6 @@ Just something I want, and didn't get the money to buy, yet.
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
 - ocean-teabag 水獺版
-- [SCRIBEE Mood Light](https://www.see-art.com/products/scribee-mood-light)
 - Hilleberg 紅標/黃標 三人帳
 - Kinesis Advantage 2 鍵盤
 - aeropress 野營咖啡機
