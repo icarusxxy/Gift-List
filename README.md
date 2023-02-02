@@ -16,7 +16,6 @@ Just something I want, and didn't get the money to buy, yet.
 - Remarkable 2
 - ~~Penny Board 29" Surfskate~~
 - ~~Boox 7" 以上~~
-- ~~[Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)
 - fragment 8 retro camera
 - Hanchor Flint / Breccia / Marble / Marl / Tufa 包包
 - ~~Leatherman 工具鉗~~
@@ -77,6 +76,7 @@ Just something I want, and didn't get the money to buy, yet.
 - Marshall / Bose 的藍牙音響
 - quicksilver 的海灘褲
 - ~~超大 enter 按鈕~~
+- ~~[Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)~~
 - [ecosia 周邊](https://ecosiashop.com/)
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
