@@ -44,7 +44,7 @@ Just something I want, and didn't get the money to buy, yet.
   - ~~[我所告訴你關於那座山的一切](https://www.taaze.tw/products/11100879025.html)~~
   - 女神自助餐
   - [罪刑海洋 The Outlaw Ocean](https://www.books.com.tw/products/0010860359)
-  - 房思琪的初戀樂園
+  - ~~房思琪的初戀樂園~~
   - ~~正常人~~
   - 正午惡魔
   - I Used to Have a Plan: But Life Had Other Ideas
