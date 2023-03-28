@@ -51,7 +51,7 @@ Just something I want, and didn't get the money to buy, yet.
   - 真相製造
   - 日本美學：物哀、幽玄、侘寂（全三冊）
   - [迷因：基因和迷因共謀的人類心智和文化演化史](https://www.twreporter.org/a/bookreview-the-meme-machine)
-  - 任何卡謬、村上春樹、吉本芭娜娜、保羅奧斯特、沙特、赫賽、李維菁、黃麗群、吳明益的書
+  - 任何卡謬、村上春樹、吉本芭娜娜、保羅奧斯特、沙特、赫賽、李維菁、沈意卿、黃麗群、吳明益、李屏瑤的書
 - 墊電腦螢幕的木架子
 - ~~漁夫帽~~
 - 東京事變 / 椎名林檎相關周邊
