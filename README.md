@@ -12,7 +12,7 @@ Just something I want, and didn't get the money to buy, yet.
 耶～
 ```
 
-- Switch 紅藍版主機(電力加強版)
+- ~~Switch 紅藍版主機(電力加強版)~~
 - Remarkable 2
 - ~~Penny Board 29" Surfskate~~
 - ~~Boox 7" 以上~~
@@ -20,7 +20,7 @@ Just something I want, and didn't get the money to buy, yet.
 - Hanchor Flint / Breccia / Marble / Marl / Tufa 包包
 - ~~Leatherman 工具鉗~~
 - Tropicfeel Shell / Nest
-- Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5
+- ~~Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5~~
 - 羊毛與千葉花 - Live in Living’09
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
