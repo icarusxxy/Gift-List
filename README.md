@@ -25,15 +25,16 @@ Just something I want, and didn't get the money to buy, yet.
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
 - 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
 - 超高流明便攜式戰術手電筒
-- [台數表Project：海底撈月短踢](https://www.versetw.com/products/mahjongg-t-shirt-1-1)
+- ~~[台數表Project：海底撈月短踢](https://www.versetw.com/products/mahjongg-t-shirt-1-1)~~
 - codex seraphinianus
 - [Criterion Collection: World of Wong Kar Wai](https://www.criterion.com/boxsets/4117-world-of-wong-kar-wai)
 - [LEGO® Art - The Beatles (31198)](https://www.lego.com/en-us/product/tbd-music-2020-31198)
 - 任何 [The Oh No Shop](https://www.theohnoshop.com/) 賣的可愛東東
+- [ecosia 周邊](https://ecosiashop.com/)
 - 任何 [mr-sci.net](https://mr-sci.net/) 賣的酷東東
 - 任何 [musthavestuff](https://musthavestuff.com/) 賣的酷東東
 - ~~[FutureLab C4轉接控制站](https://futurelab.tw/collections/3cc/products/xbomb)~~
-- GoPro 9/10/11
+- ~~GoPro 9/10/11~~
 - Garmin Instinct Solar 運動衝浪版 / Felix ~~/ vívomove Style~~
 - boogie board blackboard 14"
 - 書: 
@@ -68,16 +69,15 @@ Just something I want, and didn't get the money to buy, yet.
 - opensuse 的 gecko 玩偶
 - ~~Stanley 的保溫瓶~~
 - 美達寶美茶包
-- 信封封蠟套組
+- ~~信封封蠟套組~~
 - ~~Topologie / Fjällräven(不要Kånken款) / Patagonia 的後背包~~
 - ~~ukubass~~
-- 微型投影機
+- ~~微型投影機~~
 - whiskey wedge
 - Marshall / Bose 的藍牙音響
 - quicksilver 的海灘褲
 - ~~超大 enter 按鈕~~
 - ~~[Divoom Ditoo Plus](https://www.pinkoi.com/product/vSypJEPq)~~
-- [ecosia 周邊](https://ecosiashop.com/)
 - 88鍵電子琴/電鋼琴
 - 空氣鼓棒
 - ocean-teabag 水獺版
