@@ -23,7 +23,7 @@ Just something I want, and didn't get the money to buy, yet.
 - ~~Dr. Martens 2976 Smooth Leather Chelsea Boots US9.5~~
 - 羊毛與千葉花 - Live in Living’09
 - 任何羊毛與千葉花、陳珊妮、草莓救星的專輯
-- 鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS
+- [鋼之鍊金術師塔羅牌 THE WHIRLING WAYS OF STARS THAT PASS](https://www.reddit.com/r/FullmetalAlchemist/comments/t74juk/fullmetal_alchemist_themed_tarot_cards_artist/)
 - 超高流明便攜式戰術手電筒
 - ~~[台數表Project：海底撈月短踢](https://www.versetw.com/products/mahjongg-t-shirt-1-1)~~
 - codex seraphinianus
